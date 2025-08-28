@@ -1,0 +1,1 @@
+You do NOT have any rights to say that you own this Game.
