@@ -1,1 +1,1 @@
-You do NOT have any rights to say that you own this Game.
+This game was created and published by me almost a year ago, it was just made for fun without any real reason behind it. I have used AI to give me a few ideas and found this the best to create a capstone project. The purpose of the AI was to solely give out keywords/syntaxes I needed or couldn't recall, other than that, it was all up to me
